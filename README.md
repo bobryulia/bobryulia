@@ -1,0 +1,3 @@
+- 👋 Hi, Yulia Bobrova
+- SPB
+- 👀 I’m interested in find kind and smart programmer. I work in a friendly and cheerful team
